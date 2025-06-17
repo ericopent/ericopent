@@ -1,4 +1,4 @@
-Hi, my name is Érico Penteado and I'm a ex - Economics Research Intern at Gávea Investimentos and a Economist at Gap Asset. 
+Hi, my name is Érico Penteado and I'm a ex - Economics Research Intern at Gávea Investimentos and an Economist at Gap Asset. 
 
 Also, I'm the founder and ex-president of @EconData Analytics from PUC-Rio.
 
